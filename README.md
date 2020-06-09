@@ -18,7 +18,7 @@ Please copy or scan/take a photo of your images into a Miro project for your sub
 
 ### Critical Thinking
 
-Write an essay between 500–600 words discussing the impact on Vancouver when large tech firms like Amazon or Apple opens up major offices employing thousands of tech workers.
+Write an essay between 500–600 words discussing the impact on customer behaviour as technology overtakes traditional businesses. For example: Online shopping taking over physical malls, self driving cars taking over truckers business.
 
 ## Answer Submission
 
