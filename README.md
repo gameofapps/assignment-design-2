@@ -1,6 +1,6 @@
 # Game of Apps Design Intern Interview
 
-Thank you for your application to Game of Apps for a summer design internship! The following are instructions for the take-home questions that we want you to work through and answer as part of your interview and evaluation process. You have until **June 9, 2021** to complete the take-home questions.
+Thank you for your application to Game of Apps for a summer design internship! The following are instructions for the take-home questions that we want you to work through and answer as part of your interview and evaluation process. You have until **June 9, 2021 at 5PM PST/2PM EST** to complete the take-home questions.
 
 ## Design
 
