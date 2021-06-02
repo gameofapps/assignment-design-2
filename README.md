@@ -22,7 +22,7 @@ Write an essay between 500–600 words discussing the impact on customer behavio
 
 ## Submission
 
-Copy all your images to one Figma or Miro project and share the link in an email to careers@gameofapps.org. If you have any physical or printed materials, please take photos of these and include them in your submission. You may be asked to bring some of these to the subsequent interview.
+Copy all your images to one Figma or Miro project and submit your assignment to [**this form**](https://forms.gle/Xjdc1eZH1C4XL6Gr9). If you have any physical or printed materials, please take photos of these and include them in your submission. You may be asked to bring some of these to the subsequent interview.
 
 ## Summary
 
